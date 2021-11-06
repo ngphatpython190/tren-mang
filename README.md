@@ -1,1 +1,1 @@
-minh lay tren mang nha!
+khong viet o day
